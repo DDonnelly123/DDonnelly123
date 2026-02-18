@@ -77,7 +77,7 @@ GPA: **~3.6 (Deans Honor Roll)**
 
 ## 📫 Get in Touch
 - 📧 Email: dda87@sfu.ca  
-- 💼 LinkedIn: *(add your LinkedIn URL here)*
+- 💼 LinkedIn: *(www.linkedin.com/in/darraghdonnelly)*
 
 ---
 
